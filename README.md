@@ -1,2 +1,2 @@
-## Hi, I’m Joan 👋
+## Hello! I’m Joan 👋
 
